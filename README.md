@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mangesh9890
+- ✋ Real name - Mangesh Solanke
+- 👀 I’m interested in vollyball, football, trekking.
+- 🌱 I’m currently learning Electronics and telecomuunication engineering 
+- 🏫 I'm completing engineering at International Institute of Information Techonology (I2IT), PUNE
+- 📫 How to reach me "https://www.linkedin.com/in/mangesh-solanke-88ab65219/"
